@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ![itsme](https://github.com/krapli441/krapli441/assets/108733795/5769efea-5ab8-46ad-ba66-334d1cde6d07)
 
 <!--
