@@ -1,4 +1,5 @@
-![itsme](https://github.com/krapli441/krapli441/assets/108733795/5769efea-5ab8-46ad-ba66-334d1cde6d07)
+
+![itsmeguys](https://github.com/krapli441/krapli441/assets/108733795/9010556a-4c13-4238-818c-f39bc6898768)
 
 <!--
 **krapli441/krapli441** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
